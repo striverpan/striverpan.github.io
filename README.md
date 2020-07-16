@@ -1,8 +1,10 @@
-# striverpan.github.io
+潘公子爱太极的博客
 
 
 
+## English
 
+* 音标
 
+  
 
-                  Kevin Pan's Blog
